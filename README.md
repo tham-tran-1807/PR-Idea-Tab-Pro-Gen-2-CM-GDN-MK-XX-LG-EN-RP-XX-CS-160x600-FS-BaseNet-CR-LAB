@@ -1,0 +1,2 @@
+# PR-Idea-Tab-Pro-Gen-2-CM-GDN-MK-XX-LG-EN-RP-XX-CS-160x600-FS-BaseNet-CR-LAB
+PR-Idea-Tab-Pro-Gen-2-CM-GDN-MK-XX-LG-EN-RP-XX-CS-160x600-FS-BaseNet-CR-LAB
